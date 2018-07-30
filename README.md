@@ -1,9 +1,12 @@
-# Jazz Driving Tractors
+# Jazz Driving Tractors Fanclub
+
+This is a tounge in cheek idea to create a fanclub, and getting more fun into farming.. ta AgriVids..
 
 - **Jazz** is a young lady that works on farms driving 
-   tractors, see [Agrivids](https://www.youtube.com/user/AgriVidsProductions)
+   [tractors](/tractors), see [Agrivids](https://www.youtube.com/user/AgriVidsProductions)
 - This is the Jazz fanclub !
 - Coming soon Posters, desktop images, screensavers.. all for fun and a smile for a moment..
+- Even exclusive line of Jazz jeans, tops, sun glasses and hairstyle...
 
 
 [![Jazz Hauling Silage To The Farm](https://img.youtube.com/vi/CwgJot1DSCg/0.jpg)](https://www.youtube.com/watch?v=CwgJot1DSCg)
