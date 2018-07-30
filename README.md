@@ -1,8 +1,9 @@
 # Jazz Driving Tractors
 
-- Jazz is a young lady that works on farms, driving tractors (on Agrivids)
-
-- This is the Jazz fanclub.. Coming soon Posters, desktop images, screensavers..
+- **Jazz** is a young lady that works on farms driving 
+   tractors, see [Agrivids](https://www.youtube.com/user/AgriVidsProductions)
+- This is the Jazz fanclub !
+- Coming soon Posters, desktop images, screensavers.. all for fun and a smile for a moment..
 
 
 [![Jazz Hauling Silage To The Farm](https://img.youtube.com/vi/CwgJot1DSCg/0.jpg)](https://www.youtube.com/watch?v=CwgJot1DSCg)
