@@ -21,5 +21,23 @@ fun into farming.. ta [Agrivids](https://www.youtube.com/user/AgriVidsProduction
 
 
 
+## Jazz Tractor Wear
+
+This exlusive line fo Jazz.. tried and tested...
+
+https://www.google.co.uk/search?q=stained+jeans&tbm=isch&tbo=u&source=univ&sa=X&ved=2ahUKEwjI6rLf_cfcAhVBQ8AKHUNgCmAQsAR6BAgEEAE&biw=1280&bih=927
 
 
+## Tractors
+ - Case This and John Dear Holland
+
+## Trailers
+ - this and that placeholder
+ 
+ 
+ # Jazz Training
+ - Drive a tractor
+ - How to reverse
+ - Would be lots of fun, and a mentor indeed.. 
+ 
+ 
