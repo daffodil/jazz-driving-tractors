@@ -4,9 +4,10 @@ This is a tounge in cheek idea to create a fanclub, and getting more fun into fa
 
 - **Jazz** is a young lady that works on farms driving 
    [tractors](/tractors), see [Agrivids](https://www.youtube.com/user/AgriVidsProductions)
-- This is the Jazz fanclub !
+- This is the idea for a Jazz fanclub, for fun and no dispect to Jazz!
 - Coming soon Posters, desktop images, screensavers.. all for fun and a smile for a moment..
-- Even exclusive line of Jazz jeans, tops, sun glasses and hairstyle...
+- Even exclusive line of "dress like jazz", ie Jazz jeans, tops, sun glasses and hairstyle...rofl...
+- Join in and raise an Issue..
 
 
 [![Jazz Hauling Silage To The Farm](https://img.youtube.com/vi/CwgJot1DSCg/0.jpg)](https://www.youtube.com/watch?v=CwgJot1DSCg)
